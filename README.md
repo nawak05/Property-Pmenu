@@ -1,5 +1,13 @@
+Bonjour, voicie un Script pas le Interdis de le Vendre 
 
-Hello;
-Here is one for Create Property
-Do not sell this Script I am prohibited from vodre the resources any possible modifications for you to debug it
-He has no support for this script
+
+a vous de le debugs 
+
+
+
+Pas de support 
+
+
+
+Discord pour avoir de laide 
+https://discord.gg/RETgVXBDWa
